@@ -1,1 +1,0 @@
-# mannyjasus.github.io
